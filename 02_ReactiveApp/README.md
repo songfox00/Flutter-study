@@ -1,0 +1,2 @@
+![반응형1](https://user-images.githubusercontent.com/69200763/150837291-55bef711-2315-4f04-80b0-47d4612d801d.png)
+![반응형2](https://user-images.githubusercontent.com/69200763/150837294-b527717c-f495-4059-a594-b8493b010c74.png)
